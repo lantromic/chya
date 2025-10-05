@@ -1,1 +1,9 @@
-Welcome to nonsense
+they
+say
+i am
+a god
+u
+are
+amdonkey
+whore
+hahahahahaha
